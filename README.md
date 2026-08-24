@@ -9,3 +9,7 @@
 <br>
 
 <img align="center" width="300" src="https://img.sanishtech.com/u/3f2ffa4174ee1f21bfc62926a57deff2.webp">
+
+<br>
+
+ONE PIECE MOVIE COMING UP🗣️🗣️🗣️
