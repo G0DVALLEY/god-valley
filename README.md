@@ -3,7 +3,7 @@ $${\color{#966465}someone}$$ $${\color{#6D605E}from above us}$$ $${\color{#96646
 
 <img align="center" width="300" src="https://img.sanishtech.com/u/7fa9b0ee2b4d525f367ec8e42c5b1a3b.png">
 
-*rentry*ㅤㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
+[*rentry*](https://rentry.co/aboveworld)ㅤㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <br>
 
