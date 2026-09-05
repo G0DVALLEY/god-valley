@@ -4,7 +4,9 @@
 
 [*rentry*](https://rentry.co/aboveworld)ㅤㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
-<br>
+<div align="center ">
+
+────────────────────────
 
 [main](https://github.com/URAHARA-KI)
 [01](https://github.com/kuushanks)
