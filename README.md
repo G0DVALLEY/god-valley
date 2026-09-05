@@ -1,7 +1,6 @@
 <div align="center ">
-$${\color{#966465}someone}$$ $${\color{#6D605E}from above us}$$ $${\color{#966465}and}$$ ㅤ $${\color{#6D605E}the king of}$$ $${\color{#966465}the world.}$$ </br>
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/7fa9b0ee2b4d525f367ec8e42c5b1a3b.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/fd72e55d3993f710e3c4c3004128c2ea.png">
 
 [*rentry*](https://rentry.co/aboveworld)ㅤㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
