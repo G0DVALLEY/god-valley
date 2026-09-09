@@ -2,7 +2,7 @@
 
 <img align="center" width="300" src="https://img.sanishtech.com/u/78ae8234089614828962ea5d2a56ddb9.png">
 
-[*rentry*](https://rentry.co/kidlawz)ㅤㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
+[*rentry*](https://rentry.co/weremadeofmeat)ㅤㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
 <div align="center ">
 
