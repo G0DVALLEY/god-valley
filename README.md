@@ -1,6 +1,6 @@
 <div align="center ">
 
-<img align="center" width="300" src="https://img.sanishtech.com/u/78ae8234089614828962ea5d2a56ddb9.png">
+<img align="center" width="300" src="https://img.sanishtech.com/u/e3eea719ed03673dd16f548585859bb1.png">
 
 [*rentry*](https://rentry.co/weremadeofmeat)ㅤㅤ[*strawpage*](https://httpsdawnangelstrawpage.straw.page)
 
